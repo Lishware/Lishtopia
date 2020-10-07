@@ -1,2 +1,4 @@
 # Lishtopia
 The first of more to come.  Do you smell that?  The smell of greatness is among us.
+
+ABOUT THE MAN, THE LEGEND: So it all started on a cold summer's day in August of '96.  I was in the oven and decided I had had enough.  So, with haste, I elbow greased my way out of the fleshy contraption and arrived in a foreign land known as Austin, Texas.  There, I would marinate for 6 years, absorbing information and wisdom like a vacuum.  Around the 6th year, I would convince my father to leave the barren wasteland known as Texas and all of its luxuries behind -- so that I could conquer North Carolina.  Alas, due to recent circumstances, my conquest for domination and subjugation have been put on Verizon Wireless customer service level hold.  COVID had other plans.  But do not be dismayed, for as soon as the world decides to get itself together, it shall be back to scheduled programming.
